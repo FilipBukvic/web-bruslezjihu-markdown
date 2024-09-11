@@ -1,0 +1,3 @@
+# Dodatečné poznámky ke kurzu
+
+Lorem ipsum dolor sit amet, consectetuer adipiscing elit. Nunc auctor. Mauris dolor felis, sagittis at, luctus sed, aliquam non, tellus. Nulla non lectus sed nisl molestie malesuada. Nullam sit amet magna in magna gravida vehicula. Aliquam erat volutpat. Nullam sit amet magna in magna gravida vehicula. Praesent id justo in neque elementum ultrices. Curabitur bibendum justo non orci. Integer imperdiet lectus quis justo. Etiam quis quam. Nam sed tellus id magna elementum tincidunt. Nunc dapibus tortor vel mi dapibus sollicitudin. Aliquam in lorem sit amet leo accumsan lacinia.
