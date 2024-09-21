@@ -1,1 +1,1 @@
-Na našich kurzech inline bruslení si s dětmi i dospělými užijete bezpečnou a zábavnou jízdu. Ať už se teprve rozjíždíte, nebo chcete vylepšit styl, jsme tu pro vás od úplně prvních krůčků! 
+Naše kurzy jsou určené pro děti i dospělé a každý si na nich užije bezpečnou a zábavnou jízdu. Ať už se teprve rozjíždíte, nebo chcete vylepšit styl, jsme tu pro vás od úplně prvních krůčků! Pomáháme vám zvládnout techniku bruslení tak, aby byla jízda bezpečná a abyste z ní měli opravdu radost.
