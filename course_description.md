@@ -2,9 +2,9 @@ Vážení rodiče,
 
 Děkuji za váš zájem přihlásit sebe nebo vaši ratolest na kurz inline bruslení! Kurz probíhá zábavnou formou, která dětem umožňuje rychle zvládnout nové bruslařské dovednosti díky hrám a interaktivním aktivitám. Naším cílem je, aby byla výuka zábavná a motivující. Snažíme se každému dítěti poskytnout individuální pozornost, aby nikdo nezůstal pozadu. Věříme, že inline bruslení se pro vaše děti stane nejen oblíbenou aktivitou, ale také příležitostí k neustálému zdokonalování a radosti ze sportu.
 
-Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti od 4 let. Dospělí jsou omezeni hranicí 99 let :-)  
+Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti od 4 let. Dospělí jsou omezeni hranicí 99 let 😊 
 
-Po vyplnění elektronické přihlášky (níže) obdržíte e-mailem potvrzení o přihlášení dítěte do kroužku. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
+Po vyplnění elektronické přihlášky (vpravo) obdržíte e-mailem potvrzení o přihlášení do kurzu. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
 
 Důležité informace:
 - Lekce bruslení trvá 60 minut.
