@@ -9,7 +9,7 @@ Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihl
 **Důležité informace:**
 - Lekce bruslení trvá 60 minut.
 - Potřebné vybavení - Povinné: inline brusle, helma (může být cyklistická), chrániče kolen, loktů a zápěstí, doporučené: pohodlné sportovní oblečení, lahev s pitím. A pro všechny platí, že dobrá nálada je nezbytná! 😊
-- V případě špatného počasí může být lekce zrušena. V takovém případě vás budeme informovat, a kurz se prodlouží o týden, nebo se počet lekcí přizpůsobí podle potřeby.
+- V případě špatného počasí může být lekce zrušena. V takovém případě vás budeme informovat pomocí sms zprávy, kurz se prodlouží o týden, nebo se počet lekcí přizpůsobí podle potřeby.
 - Zmeškané lekce můžete nahradit kdykoliv během trvání kurzu na jiných lekcích nebo v jiných skupinách, dle vaší dostupnosti a po dohodě s instruktorem.
 - Dítě lze na lekci po dobu jejího trvání ponechat pouze instruktorovi, nemusíte být na místě, váš návrat na místo konání stačí až ke konci lekce. V případě, že budete požadovat aby šlo dítě po skončení lekce samo domů, přineste prosím podepsaný písemný souhlas.
 
