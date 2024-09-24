@@ -1,22 +1,24 @@
-**Vážení rodiče,**
+**Vážení bruslaři/bruslařky 😊,**
 
-Děkuji za váš zájem přihlásit sebe nebo vaši ratolest na kurz inline bruslení! Kurz probíhá zábavnou formou, která dětem umožňuje rychle zvládnout nové bruslařské dovednosti díky hrám a interaktivním aktivitám. Naším cílem je, aby byla výuka zábavná a motivující. Snažíme se každému dítěti poskytnout individuální pozornost, aby nikdo nezůstal pozadu. Věříme, že inline bruslení se pro vaše děti stane nejen oblíbenou aktivitou, ale také příležitostí k neustálému zdokonalování a radosti ze sportu.
+Děkujeme za váš zájem přihlásit se na kurz inline bruslení! Kurz je ideální příležitostí, jak se od základů až po pokročilé techniky naučit správně bruslit a přitom si užít spoustu zábavy. Naším cílem je, aby byla výuka nejen zábavná, ale i motivující. Ke každému přistupujeme individuálně, aby nikdo nezůstal pozadu. Věříme, že se inline bruslení pro vás stane nejen oblíbenou aktivitou, ale také skvělou cestou ke zdokonalování a radosti ze sportu.
 
-Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti od 4 let. Dospělí jsou omezeni hranicí 99 let 😊 
+Kurz je vhodný pro všechny, bez ohledu na zkušenosti či dovednosti.
 
-Po vyplnění elektronické přihlášky (vpravo) obdržíte e-mailem potvrzení o přihlášení do kurzu. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
+Co se naučíme? Jízdu vpřed, zastavování, zatáčení, vyhýbání se překážkám, přešlapování, jízdu vzad, triky a další další i další techniky, které zvyšují efektivitu pohybu a minimalizují riziko zranění. (vše po individuální domluvě – nic není povinné).
+
+Po vyplnění elektronické přihlášky, obdržíte e-mailem potvrzení o přihlášení do kurzu. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
 
 **Důležité informace:**
 - Lekce bruslení trvá 60 minut.
-- Povinné vybavení pro dítě: inline brusle, helma (může být cyklistická) a chrániče kolen, loktů a zápěstí. Doporučené vybavení: pohodlné sportovní oblečení a lahev s pitím. Pro dospělého je povinná pouze helma. A pro všechny platí, že dobrá nálada je nezbytná! 😊
+- Povinné vybavení: brusle a helma (může být cyklistická), doporučené vybavení: pohodlné sportovní oblečení a lahev s pitím. Pro všechny platí, že dobrá nálada je nezbytná! 😊
 - V případě špatného počasí může být lekce zrušena. V takovém případě vás budeme informovat, a kurz se prodlouží o týden, nebo se počet lekcí přizpůsobí podle potřeby.
 - Zmeškané lekce můžete nahradit kdykoliv během trvání kurzu na jiných lekcích nebo v jiných skupinách, dle vaší dostupnosti a po dohodě s instruktorem.
 
-Pokud potřebujete zapůjčit vybavení pro bruslení, napište nám nebo přidejte konkrétní požadavek do poznámky při registraci do kurzu. 
+Pokud potřebujete zapůjčit vybavení, dejte nám vědět nebo svůj konkrétní požadavek uveďte v poznámce při registraci do kurzu.
 
-Platbu lze provést na místě nebo zasláním platebních údajů.
+Platbu lze provést na místě nebo vám budou zaslány platební údaje.
 
-V případě, že máte jakékoliv dotazy, neváhejte nás kontaktovat.
+Moc se na vás těšíme! Společně roztočíme kolečka a užijeme si spoustu zábavy. 😊 
 
-Moc se na vás těším a věřím, že si užijeme spoustu zábavy a pořádně ty kolečka roztočíme! 😊
+Pokud máte jakékoliv dotazy, neváhejte nás kontaktovat!
 
