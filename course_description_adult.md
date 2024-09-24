@@ -10,7 +10,7 @@ Po vyplnění elektronické přihlášky, obdržíte e-mailem potvrzení o přih
 
 **Důležité informace:**
 - Lekce bruslení trvá 60 minut.
-- Mějte ssebou vybavení: povinné: brusle a helma (může být cyklistická), doporučené: pohodlné sportovní oblečení a lahev s pitím. Pro všechny platí, že dobrá nálada je nezbytná! 😊
+- Potřebné vybavení: povinné: brusle a helma (může být cyklistická), doporučené: pohodlné sportovní oblečení, lahev s pitím. Pro všechny platí, že dobrá nálada je nezbytná! 😊
 - V případě špatného počasí může být lekce zrušena. V takovém případě vás budeme informovat, a kurz se prodlouží o týden, nebo se počet lekcí přizpůsobí podle potřeby.
 - Zmeškané lekce můžete nahradit kdykoliv během trvání kurzu na jiných lekcích nebo v jiných skupinách, dle vaší dostupnosti a po dohodě s instruktorem.
 
@@ -18,7 +18,7 @@ Pokud potřebujete zapůjčit vybavení, dejte nám vědět nebo svůj konkrétn
 
 Platbu lze provést na místě nebo vám zašleme platební údaje.
 
-Moc se na vás těšíme! Společně roztočíme kolečka a užijeme si spoustu zábavy. 😊 
+Moc se na vás těšíme! Společně roztočíme kolečka a užijeme si spoustu zábavy 😊. 
 
 Pokud máte jakékoliv dotazy, neváhejte nás kontaktovat!
 
