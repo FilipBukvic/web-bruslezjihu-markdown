@@ -10,10 +10,10 @@ Každý den se budou střídat aktivity jako míčové hry, bojové sporty, běh
 ⸻
 
 # Inline bruslení – na co se mohou děti těšit?
-	•	výuka základních technik jízdy na bruslích
-	•	zvládnutí všech stylů brzdění (pluh, T-stop, patní brzda aj.)
-	•	nácvik správného zatáčení a jízdy v oblouku
-	•	pokročilé bruslařské dovednosti pro děti, které už zvládají základy
+výuka základních technik jízdy na bruslích
+zvládnutí všech stylů brzdění (pluh, T-stop, patní brzda aj.)
+nácvik správného zatáčení a jízdy v oblouku
+pokročilé bruslařské dovednosti pro děti, které už zvládají základy
 
 Každé dítě pracuje podle své úrovně – ať už je úplný začátečník, nebo zkušený bruslař, každý si od nás odnese nové dovednosti a hlavně radost z pohybu.
 
@@ -33,11 +33,11 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 ⸻
 
 # Naší prioritou je:
-	•	bezpečnost a pohoda dětí
-	•	smysluplný, pestrý a zábavný program
-	•	individuální přístup ke každému dítěti
-	•	rozvoj sportovní zdatnosti a radost z pohybu
-	•	spokojenost nejen dětí, ale i vás – rodičů
+bezpečnost a pohoda dětí
+smysluplný, pestrý a zábavný program
+individuální přístup ke každému dítěti
+rozvoj sportovní zdatnosti a radost z pohybu
+spokojenost nejen dětí, ale i vás – rodičů
 
 ⸻
 
