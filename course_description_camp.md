@@ -63,6 +63,9 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 - oběd, dvě svačiny a celodenní pitný režim
 - využití sportovišť a sportovního vybavení
 - drobné odměny a soutěže
+- originální týmové nike tričko bruslezjihu
+
+Velikost trička uveďte do kolonoky při přihlašování
 
 ⸻
 
