@@ -13,7 +13,7 @@ Každý den se budou střídat aktivity jako míčové hry, bojové sporty, běh
 - výuka základních technik jízdy na bruslích
 - zvládnutí všech stylů brzdění (pluh, T-stop, patní brzda aj.)
 - nácvik správného zatáčení a jízdy v oblouku
-- pokročilé bruslařské dovednosti pro děti, které už zvládají základy
+
 
 Každé dítě pracuje podle své úrovně – ať už je úplný začátečník, nebo zkušený bruslař, každý si od nás odnese nové dovednosti a hlavně radost z pohybu.
 
