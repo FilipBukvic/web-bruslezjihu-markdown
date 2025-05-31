@@ -113,6 +113,7 @@ Za cennosti účastníků nenesou instruktoři odpovědnost
 Po vyplnění elektronické přihlášky obdržíte potvrzení e-mailem a další potřebné informace. Pokud se přihlašujete jako náhradník, ozveme se vám telefonicky, jakmile se místo uvolní.
 
 Těšíme se na všechny malé sportovce!
+
 Čeká nás aktivní a nezapomenutelný týden plný pohybu, přátelství a letních zážitků 😊
 
 Máte jakékoliv dotazy? Jsme tu pro vás – neváhejte se ozvat.
