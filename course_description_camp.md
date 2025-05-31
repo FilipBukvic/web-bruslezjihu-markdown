@@ -9,7 +9,7 @@ Každý den se budou střídat aktivity jako míčové hry, bojové sporty, běh
 
 ⸻
 
-**Inline bruslení – na co se mohou děti těšit?
+**Inline bruslení – na co se mohou děti těšit?**
 - výuka základních technik jízdy na bruslích
 - zvládnutí všech stylů brzdění (pluh, T-stop, patní brzda aj.)
 - nácvik správného zatáčení a jízdy v oblouku
@@ -20,7 +20,7 @@ Každé dítě pracuje podle své úrovně – ať už je úplný začátečník
 
 ⸻
 
-# Zázemí a hlavní výhody tábora:
+**Zázemí a hlavní výhody tábora:**
 
 ➡️ Velká venkovní hala (uzavřená) – skvělé místo pro sportování i při nepřízni počasí
 ➡️ Vnitřní tělocvična plně vybavená pro různé sporty – včetně profesionálního vybavení pro bojové sporty
@@ -33,7 +33,7 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 
 ⸻
 
-# Naší prioritou je:
+**Naší prioritou je:**
 - bezpečnost a pohoda dětí
 - smysluplný, pestrý a zábavný program
 - individuální přístup ke každému dítěti
@@ -42,7 +42,7 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 
 ⸻
 
-# Organizace dne:
+**Organizace dne:**
 
 🕗 Příchod dětí: mezi 7:30–8:00
 🕓 Vyzvedávání dětí: mezi 15:30–16:00
@@ -50,23 +50,23 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 
 ⸻
 
-# V ceně tábora je zahrnuto:
-	•	celodenní program vedený kvalifikovanými instruktory
-	•	oběd, dvě svačiny a celodenní pitný režim
-	•	využití sportovišť a sportovního vybavení
-	•	drobné odměny a soutěže
+**V ceně tábora je zahrnuto:**
+- celodenní program vedený kvalifikovanými instruktory
+- oběd, dvě svačiny a celodenní pitný režim
+- využití sportovišť a sportovního vybavení
+- drobné odměny a soutěže
 
 ⸻
 
-# Co s sebou:
-	•	malý batůžek
-	•	lahev na pití
-	•	vhodná venkovní i sálová sportovní obuv
-	•	přezůvky do tělocvičny 
-	•	inline brusle, helmu a chrániče (kolena, lokty, zápěstí)
-	•	ručník
-	•	sportovní oblečení – kraťasy, tepláky/dlouhé kalhoty, trička, mikinu, případně ponožky.
-	•	kopii kartičky zdravotní pojišťovny
+**Co s sebou:**
+- malý batůžek
+- lahev na pití
+- vhodná venkovní i sálová sportovní obuv
+- přezůvky do tělocvičny
+- inline brusle, helmu a chrániče (kolena, lokty, zápěstí)
+- ručník
+- sportovní oblečení – kraťasy, tepláky/dlouhé kalhoty, trička, mikinu, případně ponožky.
+- kopii kartičky zdravotní pojišťovny
 
 🔸 V případě, že si potřebujete něco zapůjčit (např. brusle, helmu nebo chrániče), napište nám to prosím do poznámky při přihlašování – rádi vám vybavení zdarma zapůjčíme.
 
@@ -74,27 +74,27 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 
 ⸻
 
-# Je možné zajistit náhradní stravu?
+**Je možné zajistit náhradní stravu?**
 
 Náhradní stravu v případě zvláštní diety nezařizujeme.
 Děti si ale mohou nosit vlastní jídlo s sebou, nebo vám rádi předáme kontakt na provozovnu, kde zajišťujeme obědy, a domluvíte si dietní variantu přímo s nimi.
 
 ⸻
 
-# Jaké dokumenty je potřeba odevzdat při nástupu na tábor?
+**Jaké dokumenty je potřeba odevzdat při nástupu na tábor?**
 
 Při nástupu je nutné předat:
-	•	kopii kartičky zdravotní pojišťovny
-	•	podepsané čestné prohlášení o bezinfekčnosti
-	•	vyjádření lékaře o zdravotní způsobilosti
-	•	podepsaný informovaný souhlas 
-	•	případně informace o užívání léků nebo alergiích – je nuté je předat osobně první den tábora instruktorovi
+- kopii kartičky zdravotní pojišťovny
+- podepsané čestné prohlášení o bezinfekčnosti
+- vyjádření lékaře o zdravotní způsobilosti
+- podepsaný informovaný souhlas
+- případně informace o užívání léků nebo alergiích – je nuté je předat osobně první den tábora instruktorovi
 
 ⸻
 
-# Co na tábor nepatří:
+**Co nebrat na tábor:**
 
-🎮 audiovizuální technika, elektronické hry, notebook ani jiné cenné předměty.
+🎮 elektronické hry, notebook ani jiné cenné předměty.
 📱 Mobilní telefon jen po dohodě s instruktory.
 
 Za cennosti účastníků nenesou instruktoři odpovědnost.
