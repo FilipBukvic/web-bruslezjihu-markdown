@@ -5,7 +5,13 @@ děkujeme za váš zájem přihlásit své dítě na Multisportovní inline př�
 Čeká nás týden plný pohybu, her, nových dovedností a hlavně radosti ze sportu. A rozhodně to nebude jen o bruslení!
 
 Kromě tréninku na inline bruslích se děti zapojí do pestrého programu, který přirozeně rozvíjí jejich motoriku, koordinaci, obratnost, týmovou spolupráci i zdravé sebevědomí.
-Každý den se budou střídat aktivity jako míčové hry, bojové sporty, běh, florbal, fotbal, kolektivní a pohybové hry – zkrátka sportovní zábava pro všechny.
+Každý den se budou střídat aktivity jako např:
+- kolektivní a pohybové hry
+- bojové sporty
+- míčové hry
+- florbal
+- fotbal
+- a další.. zkrátka sportovní zábava pro všechny.
 
 ⸻
 
