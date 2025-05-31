@@ -22,12 +22,12 @@ Každé dítě pracuje podle své úrovně – ať už je úplný začátečník
 
 **Zázemí a hlavní výhody tábora:**
 
-➡️ Velká venkovní hala (uzavřená) – skvělé místo pro sportování i při nepřízni počasí
-➡️ Vnitřní tělocvična plně vybavená pro různé sporty – včetně profesionálního vybavení pro bojové sporty
-➡️ Rozlehlé travnaté venkovní prostory – ideální pro hry, běhání i relax
-➡️ Nově zrekonstruovaná inline plocha – určená přímo pro výuku a zábavu na bruslích
-➡️ Jasně stanovený denní harmonogram, který střídá aktivní a klidové bloky
-➡️ Možnost ponechat si vybavení a oblečení v zázemí po celou dobu tábora
+- Velká venkovní hala (uzavřená) – skvělé místo pro sportování i při nepřízni počasí
+- Vnitřní tělocvična plně vybavená pro různé sporty – včetně profesionálního vybavení pro bojové sporty
+- Rozlehlé travnaté venkovní prostory – ideální pro hry, běhání i relax
+- Nově zrekonstruovaná inline plocha – určená přímo pro výuku a zábavu na bruslích
+- Jasně stanovený denní harmonogram, který střídá aktivní a klidové bloky
+- Možnost ponechat si vybavení a oblečení v zázemí po celou dobu tábora
 
 Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí bezpečné a přátelské prostředí.
 
