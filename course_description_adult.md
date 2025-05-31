@@ -6,7 +6,7 @@ Kurz je vhodný pro všechny, bez ohledu na zkušenosti či dovednosti.
 
 Co se naučíme? Jízdu vpřed, zastavování, zatáčení, vyhýbání se překážkám, přešlapování, jízdu vzad, triky a další techniky, které zvyšují efektivitu pohybu a minimalizují riziko zranění (vše po individuální domluvě – nic není povinné).
 
-Po vyplnění elektronické přihlášky, obdržíte e-mailem potvrzení o přihlášení do kurzu. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
+Po vyplnění elektronické přihlášky, obdržíte e-mailem potvrzení o přihlášení do kurzu a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
 
 **Důležité informace:**
 - Lekce bruslení trvá 60 minut.
