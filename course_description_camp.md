@@ -76,9 +76,9 @@ Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí 
 - sportovní oblečení – kraťasy, tepláky/dlouhé kalhoty, trička, mikinu, případně ponožky.
 - kopii kartičky zdravotní pojišťovny
 
-🔸 V případě, že si potřebujete něco zapůjčit (např. brusle, helmu nebo chrániče), napište nám to prosím do poznámky při přihlašování – rádi vám vybavení zdarma zapůjčíme.
+V případě, že si potřebujete něco zapůjčit (např. brusle, helmu nebo chrániče), napište nám to prosím do poznámky při přihlašování – rádi vám vybavení zdarma zapůjčíme.
 
-🔸 Pokud má dítě alergii nebo užívá léky, je nutné vše v pondělí ráno osobně předat trenérovi a mít informace řádně vypsané.
+Pokud má dítě alergii nebo užívá léky, je nutné vše v pondělí ráno osobně předat trenérovi a mít informace řádně vypsané.
 
 ⸻
 
@@ -98,14 +98,16 @@ Při nástupu je nutné předat:
 - podepsaný informovaný souhlas
 - případně informace o užívání léků nebo alergiích – je nuté je předat osobně první den tábora instruktorovi
 
+Veškeré potřebné dokumenty k vyplnění Vám zašleme po potvrzení přihlášky e-mailem. 
+
 ⸻
 
 **Co nebrat na tábor:**
 
-🎮 elektronické hry, notebook ani jiné cenné předměty.
-📱 Mobilní telefon jen po dohodě s instruktory.
+elektronické hry, notebook ani jiné cenné předměty
+Mobilní telefon jen po dohodě s instruktory
 
-Za cennosti účastníků nenesou instruktoři odpovědnost.
+Za cennosti účastníků nenesou instruktoři odpovědnost
 
 ⸻
 
