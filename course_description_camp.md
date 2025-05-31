@@ -1,4 +1,3 @@
-# Příměstský tábor
 Vážení rodiče 😊,
 
 děkujeme za váš zájem přihlásit své dítě na Multisportovní inline příměstský tábor!
