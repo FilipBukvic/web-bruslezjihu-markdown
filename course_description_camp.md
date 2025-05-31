@@ -104,8 +104,7 @@ Veškeré potřebné dokumenty k vyplnění Vám zašleme po potvrzení přihlá
 
 **Co nebrat na tábor:**
 
-elektronické hry, notebook ani jiné cenné předměty
-Mobilní telefon jen po dohodě s instruktory
+Elektronické hry, notebook ani jiné cenné předměty. Mobilní telefon jen po dohodě předem.
 
 Za cennosti účastníků nenesou instruktoři odpovědnost
 
