@@ -88,7 +88,7 @@ Pokud má dítě alergii nebo užívá léky, je nutné vše v pondělí ráno o
 **Je možné zajistit náhradní stravu?**
 
 Náhradní stravu v případě zvláštní diety nezařizujeme.
-Děti si ale mohou nosit vlastní jídlo s sebou - v takovém případě nás prosí informujte dopředu.
+Děti si ale mohou nosit vlastní jídlo s sebou - v takovém případě nás prosím informujte dopředu.
 
 ⸻
 
