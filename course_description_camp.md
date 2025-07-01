@@ -28,12 +28,11 @@ Každé dítě pracuje podle své úrovně – ať už je úplný začátečník
 
 **Zázemí a hlavní výhody tábora:**
 
-- Příměstské tábory se konají převážně v uzavřeném sportovním areálu, který dětem nabízí pestré zázemí pro pohyb, hry i odpočinek.
-- K dispozici je několik moderně vybavených sportovních hal, tělocvičen a venkovních i krytých hřišť, kde si každý najde to své.
-- Velká venkovní hala (uzavřená) – skvělé místo pro sportování i při nepřízni počasí
+- Příměstské tábory se konají převážně v uzavřeném areálu, který dětem nabízí pestré zázemí pro pohyb, hry i odpočinek.
+- K dispozici je několik moderně vybavených sportovních ploch, tělocvična a venkovních hřišťe, kde si každý najde to své.
+- Velká vnitřní hala – skvělé místo pro sportování i při nepřízni počasí
 - Vnitřní tělocvična plně vybavená pro různé sporty – včetně profesionálního vybavení pro bojové sporty
 - Rozlehlé travnaté venkovní prostory – ideální pro hry, běhání i relax
-- Nově zrekonstruovaná inline plocha – určená přímo pro výuku a zábavu na bruslích
 - Jasně stanovený denní harmonogram, který střídá aktivní a klidové bloky
 - Možnost ponechat si vybavení a oblečení v zázemí po celou dobu tábora
 
