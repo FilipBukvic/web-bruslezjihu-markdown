@@ -4,7 +4,7 @@ Děkuji za váš zájem přihlásit své dítě na kurz inline bruslení! Kurz p
 
 Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti od 4 let.
 
-Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihlášení do kurzu a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat i telefonicky.
+Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihlášení do kurzu a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat.
 
 **Důležité informace:**
 - Lekce bruslení trvá 60 minut.
