@@ -17,7 +17,7 @@ Každý den se budou střídat aktivity jako např:
 
 **Inline bruslení – na co se mohou děti těšit?**
 - výuka základních technik jízdy na bruslích
-- zvládnutí všech stylů brzdění (pluh, T-stop, patní brzda aj.)
+- výuka všech stylů brzdění (pluh, T-stop, patní brzda aj.)
 - nácvik správného zatáčení a jízdy v oblouku
 - pokročilé bruslařské dovednosti pro děti, které už zvládají základy
 
