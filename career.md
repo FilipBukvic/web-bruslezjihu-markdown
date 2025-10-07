@@ -17,3 +17,4 @@ Hledáme posily ve všech lokalitách po Jihočeském kraji – i tam, kde zatí
 Nabízíme přátelský kolektiv, smysluplnou práci, nadstandardní finanční ohodnocení, flexibilní čas a možnost být součástí projektu, který dětem přináší radost z pohybu a nových dovedností.
 
 👉 Ozvi se nám a pojď s námi tvořit zážitky, na které děti jen tak nezapomenou!
+Kontakt: Martin Kalina, e-mail: info@bruslezjihu.cz, tel. 602 400 720
