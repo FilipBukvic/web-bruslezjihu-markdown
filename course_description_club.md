@@ -9,7 +9,7 @@ Každému dítěti věnujeme individuální pozornost, aby se rozvíjelo ve své
 
 Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti mladší.
 
-Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihlášení do kurzu a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat.
+Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihlášení do kroužku a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat.
 
 **Důležité informace:**
 - Lekce trvá 60 minut a probíhá v tělocvičně.
