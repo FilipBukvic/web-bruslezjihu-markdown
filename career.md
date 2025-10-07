@@ -6,7 +6,7 @@ Baví vás práce s dětmi a máte rádi sport? Přidejte se k našemu týmu a p
 
 **Hledáme:**
 - Instruktory inline bruslení pro děti
-- Trenéry všestranných sportovních kroužků (bez bruslení)
+- Trenéry multisportovních sportovních kroužků (bez bruslení)
 - Trenéry příměstkých multisportovních inline táborů s bruslením
 - Trenéry příměstských multisportovních táborů (bez bruslení)
 
