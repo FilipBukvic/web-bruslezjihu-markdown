@@ -1,4 +1,4 @@
-**Přidej se k nám a staň se součástí Brusle z jihu!**
+**Přidejte se k nám a staňte se součástí Brusle z jihu!**
 
 Baví vás práce s dětmi a máte rádi sport? Přidejte se k našemu týmu a pomozte nám rozvíjet děti prostřednictvím pohybu, her a zábavy.
 
@@ -18,7 +18,7 @@ Většinu aktivit pořádáme v odpoledních hodinách, takže je tato spoluprá
 
 Hledáme posily ve všech lokalitách po Jihočeském kraji – i tam, kde zatím nepůsobíme. Chceme rozvíjet náš projekt a přinášet radost z pohybu do dalších měst.
 
-Nabízíme nadstandardní finanční ohodnocení, přátelský kolektiv, smysluplnou práci, flexibilní čas a možnost být součástí projektu, který dětem přináší radost z pohybu a nových dovedností.
+Nabízíme nadstandardní finanční ohodnocení, veškeré potřebné vybavení, oficiální oblečení bruslezjihu, přátelský kolektiv, smysluplnou práci s možností kariérního růstu, flexibilní čas a možnost být součástí projektu, který dětem přináší radost z pohybu a nových dovedností.
 
 Ozvěte se nám a pojďte s námi tvořit zážitky, na které děti jen tak nezapomenou!
 
