@@ -12,7 +12,6 @@ Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i
 Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihlášení do kurzu a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat.
 
 **Důležité informace:**
-
 - Lekce trvá 60 minut a probíhá v tělocvičně.
 - Doporučené vybavení: pohodlné sportovní oblečení, sálová obuv a lahev s pitím.
 - V případě nemoci či absence lze lekci nahradit v jiné skupině nebo v jiném termínu po dohodě s instruktorem.
