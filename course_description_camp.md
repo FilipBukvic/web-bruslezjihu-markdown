@@ -1,4 +1,4 @@
-Vážení rodiče 😊,
+**Vážení rodiče 😊,**
 
 děkujeme za váš zájem přihlásit své dítě na Multisportovní příměstský tábor (bez bruslení)! Čeká nás týden plný pohybu, her, nových dovedností a hlavně radosti ze sportu.
 
@@ -10,7 +10,7 @@ kolektivní a pohybové hry bojové sporty míčové hry florbal fotbal a dalš�
 
 ⸻
 
-Zázemí a hlavní výhody tábora:
+**Zázemí a hlavní výhody tábora:**
 
 - Příměstské tábory se konají převážně v uzavřeném areálu, který dětem nabízí pestré zázemí pro pohyb, hry i odpočinek.
 - K dispozici je několik moderně vybavených sportovních ploch, tělocvična a venkovních hřiště, kde si každý najde to své.
@@ -23,7 +23,7 @@ Zázemí a hlavní výhody tábora:
   
 ⸻
 
-Naší prioritou je:
+**Naší prioritou je:**
 
 - bezpečnost a pohoda dětí
 - smysluplný, pestrý a zábavný program
@@ -33,13 +33,13 @@ Naší prioritou je:
   
 ⸻
 
-Organizace dne:
+**Organizace dne:**
 
 🕗 Příchod dětí: mezi 7:30–8:00 🕓 Vyzvedávání dětí: mezi 15:30–16:00 (případně po individuální domluvě i dříve)
 
 ⸻
 
-V ceně tábora je zahrnuto:
+**V ceně tábora je zahrnuto:**
 
 - celodenní program vedený kvalifikovanými instruktory
 - oběd, dvě svačiny a celodenní pitný režim
@@ -49,7 +49,7 @@ V ceně tábora je zahrnuto:
 
 ⸻
 
-Co s sebou:
+**Co s sebou:**
 
 - malý batůžek
 - lahev na pití
@@ -65,13 +65,13 @@ Pokud má dítě alergii nebo užívá léky, je nutné vše v pondělí ráno o
 
 ⸻
 
-Je možné zajistit náhradní stravu?
+**Je možné zajistit náhradní stravu?**
 
 Náhradní stravu v případě zvláštní diety nezařizujeme. Děti si ale mohou nosit vlastní jídlo s sebou - v takovém případě nás prosím informujte dopředu.
 
 ⸻
 
-Jaké dokumenty je potřeba odevzdat při nástupu na tábor?
+**Jaké dokumenty je potřeba odevzdat při nástupu na tábor?**
 
 - kopii kartičky zdravotní pojišťovny
 - podepsané čestné prohlášení o bezinfekčnosti
@@ -84,7 +84,7 @@ Veškeré potřebné dokumenty k vyplnění Vám zašleme po potvrzení přihlá
 
 ⸻
 
-Co nebrat na tábor:
+**Co nebrat na tábor:**
 
 Elektronické hry, notebook ani jiné cenné předměty. Mobilní telefon jen po dohodě předem.
 
