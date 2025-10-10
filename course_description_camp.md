@@ -35,7 +35,8 @@ kolektivní a pohybové hry bojové sporty míčové hry florbal fotbal a dalš�
 
 **Organizace dne:**
 
-🕗 Příchod dětí: mezi 7:30–8:00 🕓 Vyzvedávání dětí: mezi 15:30–16:00 (případně po individuální domluvě i dříve)
+🕗 Příchod dětí: mezi 7:30–8:00 
+🕓 Vyzvedávání dětí: mezi 15:30–16:00 (případně po individuální domluvě i dříve)
 
 ⸻
 
