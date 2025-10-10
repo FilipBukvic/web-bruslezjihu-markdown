@@ -20,11 +20,18 @@ Zázemí a hlavní výhody tábora:
 - Možnost ponechat si vybavení a oblečení v zázemí po celou dobu tábora
 - Program vedou zkušení a vstřícní instruktoři, kteří dětem vytvářejí bezpečné a přátelské prostředí.
 - Program zpestřený např. návštěvou hasičů, policie, atp.
+  
 ⸻
 
 Naší prioritou je:
 
-bezpečnost a pohoda dětí smysluplný, pestrý a zábavný program individuální přístup ke každému dítěti rozvoj sportovní zdatnosti a radost z pohybu spokojenost nejen dětí, ale i vás – rodičů ⸻
+- bezpečnost a pohoda dětí
+- smysluplný, pestrý a zábavný program
+- individuální přístup ke každému dítěti
+- rozvoj sportovní zdatnosti a radost z pohybu
+- spokojenost nejen dětí, ale i vás – rodičů
+  
+⸻
 
 Organizace dne:
 
@@ -34,13 +41,25 @@ Organizace dne:
 
 V ceně tábora je zahrnuto:
 
-celodenní program vedený kvalifikovanými instruktory oběd, dvě svačiny a celodenní pitný režim využití sportovišť a sportovního vybavení drobné odměny a soutěže originální týmové nike tričko bruslezjihu (velikost trička uveďte do kolonoky při přihlašování)
+- celodenní program vedený kvalifikovanými instruktory
+- oběd, dvě svačiny a celodenní pitný režim
+- využití sportovišť a sportovního vybavení
+- drobné odměny a soutěže
+- originální týmové nike tričko bruslezjihu (velikost trička uveďte do kolonoky při přihlašování)
 
 ⸻
 
 Co s sebou:
 
-malý batůžek lahev na pití vhodná venkovní i sálová sportovní obuv přezůvky do tělocvičny ručník sportovní oblečení – kraťasy, tepláky/dlouhé kalhoty, trička, mikinu, případně ponožky. kopii kartičky zdravotní pojišťovny V případě, že si potřebujete něco zapůjčit (např. brusle, helmu nebo chrániče), napište nám to prosím do poznámky při přihlašování – rádi vám vybavení zdarma zapůjčíme.
+- malý batůžek
+- lahev na pití
+- vhodná venkovní i sálová sportovní obuv
+- přezůvky do tělocvičny
+- ručník
+- sportovní oblečení – kraťasy, tepláky/dlouhé kalhoty, trička, mikinu, případně ponožky.
+- kopii kartičky zdravotní pojišťovny
+
+V případě, že si potřebujete něco zapůjčit (např. brusle, helmu nebo chrániče), napište nám to prosím do poznámky při přihlašování – rádi vám vybavení zdarma zapůjčíme.
 
 Pokud má dítě alergii nebo užívá léky, je nutné vše v pondělí ráno osobně předat trenérovi a mít informace řádně vypsané.
 
@@ -54,9 +73,14 @@ Náhradní stravu v případě zvláštní diety nezařizujeme. Děti si ale moh
 
 Jaké dokumenty je potřeba odevzdat při nástupu na tábor?
 
-Při nástupu je nutné předat:
+- kopii kartičky zdravotní pojišťovny
+- podepsané čestné prohlášení o bezinfekčnosti
+- vyjádření lékaře o zdravotní způsobilosti
+- podepsaný informovaný souhlas
 
-kopii kartičky zdravotní pojišťovny podepsané čestné prohlášení o bezinfekčnosti vyjádření lékaře o zdravotní způsobilosti podepsaný informovaný souhlas případně informace o užívání léků nebo alergiích – je nuté je předat osobně první den tábora instruktorovi Veškeré potřebné dokumenty k vyplnění Vám zašleme po potvrzení přihlášky e-mailem.
+případně informace o užívání léků nebo alergiích – je nuté je předat osobně první den tábora instruktorovi
+
+Veškeré potřebné dokumenty k vyplnění Vám zašleme po potvrzení přihlášky e-mailem.
 
 ⸻
 
