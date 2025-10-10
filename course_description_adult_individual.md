@@ -18,4 +18,10 @@ Každý bruslař postupuje podle své úrovně – ať už je úplný začáteč
 
 Individuální lekce je možná pro jednotlivce i pro více osob – například sourozence, kamarády nebo rodiče s dětmi. V tomto případě je cena stanovena dle vzájemné dohody.
 
-Termín, místo i čas lekce bude upřesněn po vzájemné dohodě – co nejdříve vás budeme kontaktovat e-mailem.
+Termín, místo i čas lekce bude upřesněn po vzájemné dohodě – co nejdříve vás budeme kontaktovat telefonicky či e-mailem.
+
+Platbu lze provést na místě nebo vám zašleme platební údaje.
+
+Moc se na vás těšíme! Společně roztočíme kolečka a užijeme si spoustu zábavy 😊.
+
+Pokud máte jakékoliv dotazy, neváhejte nás kontaktovat!
