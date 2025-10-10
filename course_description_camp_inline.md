@@ -12,6 +12,7 @@ Kromě tréninku na inline bruslích se děti zapojí do pestrého programu, kte
 - florbal
 - fotbal
 - a další.. zkrátka sportovní zábava pro všechny.
+  
 ⸻
 
 **Inline bruslení – na co se mohou děti těšit?**
@@ -45,6 +46,7 @@ Každé dítě pracuje podle své úrovně – ať už je úplný začátečník
 - individuální přístup ke každému dítěti
 - rozvoj sportovní zdatnosti a radost z pohybu
 - spokojenost nejen dětí, ale i vás – rodičů
+  
 ⸻
 
 **Organizace dne:**
