@@ -3,12 +3,16 @@ Vážení rodiče 😊,
 děkujeme za váš zájem přihlásit své dítě na multisportovní kroužek!
 Naše kroužky jsou zaměřené na všestranný rozvoj pohybových dovedností, koordinace, rovnováhy a týmové spolupráce – a to vše zábavnou a hravou formou.
 
-Děti si během lekcí vyzkouší širokou škálu sportů a aktivit, např: 
+**Děti si během lekcí vyzkouší širokou škálu sportů a aktivit, např:**
 
-- základy bojových sportů
-- gymnastických cvičení
-- míčové hry 
-- motorické a koordinační aktivity. 
+- bojové sporty
+- motorické a koordinační aktivity.
+- kolektivní a pohybové hry
+- opičí dráhy
+- míčové hry
+- florbal
+- fotbal
+- a další.. zkrátka sportovní zábava pro všechny.
 
 Cílem je, aby se děti naučily správně a s radostí hýbat, získaly jistotu v pohybu a vytvořily si pozitivní vztah ke sportu.
 
