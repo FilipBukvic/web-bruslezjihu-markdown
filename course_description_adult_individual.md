@@ -1,11 +1,14 @@
-Vážení bruslaři/bruslařky 😊,
+**Vážení bruslaři/bruslařky 😊,**
 
 máme velkou radost, že máte zájem o individuální lekci inline bruslení!
+
 Už teď se těšíme, až společně roztočíme kolečka a zažijeme spoustu zábavy, pohybu a nových zážitků.
 
-Individuální lekce jsou skvělou volbou pro všechny, kteří chtějí rychleji zlepšit techniku, získat jistotu na bruslích nebo se naučit něco nového. Nabízíme možnost výuky od úplných začátků až po pokročilou jízdu, včetně základů freestyle slalomu.
+Individuální lekce jsou skvělou volbou pro všechny, kteří chtějí rychleji zlepšit techniku, získat jistotu na bruslích nebo se naučit něco nového. Nabízíme možnost výuky od úplných začátků až po pokročilou jízdu, včetně základů freestyle slalomu. 
 
-Na lekcích se můžete těšit na:
+Individuální lekce je zcela zpřizpůsobena vašim potřebám.
+
+**Na lekcích se můžete těšit třeba na:**
 - výuku základních technik jízdy a správného postoje,
 - různé styly brzdění (pluh, T-stop, patní brzda aj.),
 - nácvik zatáčení, jízdy v oblouku a stability,
