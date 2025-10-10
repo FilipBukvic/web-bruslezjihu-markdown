@@ -7,7 +7,7 @@ Děti si během lekcí vyzkouší širokou škálu sportů a aktivit – od zák
 
 Každému dítěti věnujeme individuální pozornost, aby se rozvíjelo ve svém tempu a s úsměvem.
 
-Kurz je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti mladší.
+Kroužek je vhodný pro děti obvykle od 5 let, po domluvě s rodiči přijímáme i děti mladší.
 
 Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihlášení do kroužku a všechny další potřebné informace. V případě, že se přihlašujete jako náhradník a místo se pro vás uvolní, budeme vás kontaktovat.
 
