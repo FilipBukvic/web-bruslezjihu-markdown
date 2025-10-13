@@ -1,7 +1,7 @@
 [
 	{
-		"question": "Od jakého věku mohou děti začít chodit do kroužku?",
-		"answer": "Obvykle přijímáme děti od 5 let. Po domluvě s rodiči i od 4 let, záleží na fyzických schopnostech, rovnováze a schopnosti dítěte fungovat v kolektivu (v případě skupinového kurzu)."
+		"question": "Od jakého věku se mohou děti účastnit vašich aktivit?",
+		"answer": "Obvykle přijímáme děti od 5 let. Po domluvě s rodiči i od 4 let, záleží na fyzických schopnostech, rovnováze a schopnosti dítěte fungovat v kolektivu (v případě skupinových aktivit)."
 	},
 	{
 	    "question": "Nabízíte kromě kurzů inline bruslení i další aktivity?",
@@ -24,11 +24,11 @@
 		"answer": "Pro dítě je povinné vybavení: inline brusle, helma (může být cyklistická) a chrániče kolen, loktů a zápěstí. Doporučené vybavení: pohodlné sportovní oblečení a lahev s pitím. Pro dospělého jsou povinné brusle a helma."
     },
 	{
-    	"question": "Musí být rodiče přítomni během lekce?",
-	    "answer": "Ne, přítomnost rodičů během lekce není nutná. Děti mohou po dobu lekce zůstat pouze s instruktorem. Rodiče se mohou vrátit až na konec lekce. Pokud si přejete, aby dítě po skončení lekce odešlo samo domů, je potřeba přinést podepsaný písemný souhlas."
-	 },
-	{
-	  "question": "Kurz, o který máme zájem, je označen jako „Přihlásit se jako náhradník“. Co to znamená?",
+	  "question": "Kurz, kroužek, či tábor o který máme zájem, je označen jako „Přihlásit se jako náhradník“. Co to znamená?",
 	  "answer": "Tento text znamená, že kapacita kurzu je aktuálně naplněna. Přesto se můžete přihlásit jako náhradník – po odeslání přihlášky vás zařadíme na seznam a jakmile se uvolní místo, ihned vás budeme kontaktovat."
- }
+    },
+	{
+    	"question": "Musí být rodiče přítomni během aktivit na místě?",
+	    "answer": "Ne, přítomnost rodičů není nutná. Děti mohou po dobu lekce zůstat pouze s instruktorem. Rodiče se mohou vrátit až na konec lekce. Pokud si přejete, aby dítě po skončení lekce odešlo samo domů, je potřeba přinést podepsaný písemný souhlas."
+	}
 ]
