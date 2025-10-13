@@ -26,5 +26,9 @@
 	{
     	"question": "Musí být rodiče přítomni během lekce?",
 	    "answer": "Ne, přítomnost rodičů během lekce není nutná. Děti mohou po dobu lekce zůstat pouze s instruktorem. Rodiče se mohou vrátit až na konec lekce. Pokud si přejete, aby dítě po skončení lekce odešlo samo domů, je potřeba přinést podepsaný písemný souhlas."
-	}
+	 },
+	{
+	  "question": "Kurz, o který máme zájem, je označen jako „Přihlásit se jako náhradník“. Co to znamená?",
+	  "answer": "Tento text znamená, že kapacita kurzu je aktuálně naplněna. Přesto se můžete přihlásit jako náhradník – po odeslání přihlášky vás zařadíme na seznam a jakmile se uvolní místo, ihned vás budeme kontaktovat."
+ }
 ]
