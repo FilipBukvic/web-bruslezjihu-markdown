@@ -22,4 +22,4 @@ Nabízíme nadstandardní finanční ohodnocení, veškeré potřebné vybavení
 
 Ozvěte se nám a pojďte s námi tvořit zážitky, na které děti jen tak nezapomenou!
 
-Kontakt: Martin Kalina, e-mail: info@bruslezjihu.cz, tel. 602 400 720
+**Kontakt: Martin Kalina, e-mail: info@bruslezjihu.cz, tel. 602 400 720**
