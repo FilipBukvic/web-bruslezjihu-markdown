@@ -4,6 +4,10 @@
 		"answer": "Obvykle přijímáme děti od 5 let. Po domluvě s rodiči i od 4 let, záleží na fyzických schopnostech, rovnováze a schopnosti dítěte fungovat v kolektivu (v případě skupinového kurzu)."
 	},
 	{
+	    "question": "Nabízíte kromě kurzů inline bruslení i další aktivity?",
+	    "answer": "Ano, kromě kurzů inline bruslení pořádáme také multisportovní příměstské tábory, všestranné sportovní kroužky a další pohybové aktivity pro děti. Naším cílem je rozvíjet pohyb a radost ze sportu v různých formách po celý rok."	
+    },
+	{
 		"question": "Můžeme přihlásit naše dítě do kurzu inline, i když ještě nikdy nebruslilo?",
 		"answer": "Ano, dítě můžete přihlásit i v případě, že nikdy nestálo na bruslích. Učíme děti od úplných začátků, a právě takové situace vítáme, protože dítě nemá žádné chybné návyky v technice. Díky tomu se může od začátku učit správnou techniku pod naším vedením. Důležité je, aby dítě mělo chuť se učit a postupně si osvojilo základy bruslení."
 	},
@@ -18,9 +22,5 @@
 	{
 		"question": "Co vzít s sebou na bruslení?",
 		"answer": "Pro dítě je povinné vybavení: inline brusle, helma (může být cyklistická) a chrániče kolen, loktů a zápěstí. Doporučené vybavení: pohodlné sportovní oblečení a lahev s pitím. Pro dospělého jsou povinné brusle a helma."
-	},
-	{
-		"question": "Nabízíte kromě kurzů inline bruslení i další aktivity?",
-	    "answer": "Ano, kromě kurzů inline bruslení pořádáme také multisportovní příměstské tábory, všestranné sportovní kroužky a další pohybové aktivity pro děti. Naším cílem je rozvíjet pohyb a radost ze sportu v různých formách po celý rok."
    }
 ]
