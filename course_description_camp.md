@@ -1,6 +1,6 @@
 **Vážení rodiče 😊,**
 
-děkujeme za váš zájem přihlásit své dítě na Multisportovní příměstský tábor (bez bruslení)! Čeká nás týden plný pohybu, her, nových dovedností a hlavně radosti ze sportu.
+děkujeme za váš zájem přihlásit své dítě na Multisportovní příměstský tábor (bez bruslení)! Čeká nás týden plný pohybu, psychomotorických her, nových dovedností a hlavně radosti ze sportu.
 
 Děti si vyzkouší různé sporty a aktivity které přirozeně rozvíjí jejich motoriku, koordinaci, obratnost, týmovou spolupráci i zdravé sebevědomí.
 
