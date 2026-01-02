@@ -1,6 +1,6 @@
 **Vážení rodiče 😊,**
 
-děkujeme za váš zájem přihlásit své dítě na Multisportovní inline příměstský tábor! Čeká nás týden plný pohybu, her, nových dovedností a hlavně radosti ze sportu. A rozhodně to nebude jen o bruslení!
+děkujeme za váš zájem přihlásit své dítě na Multisportovní inline příměstský tábor! Čeká nás týden plný pohybu, psychomotorických her, nových dovedností a hlavně radosti ze sportu. A rozhodně to nebude jen o bruslení!
 
 Kromě tréninku na inline bruslích se děti zapojí do pestrého programu, který přirozeně rozvíjí jejich motoriku, koordinaci, obratnost, týmovou spolupráci i zdravé sebevědomí.
 
