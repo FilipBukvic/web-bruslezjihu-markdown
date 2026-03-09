@@ -1,1 +1,3 @@
-# test
+<img width="1131" height="1600" alt="image" src="https://github.com/user-attachments/assets/555f5c44-b1be-43ea-b115-f78b9aa787f2" />
+
+Registrace na příměstský tábor je možná kliknutím na tlačítko níže...
