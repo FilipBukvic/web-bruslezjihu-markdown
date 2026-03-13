@@ -16,6 +16,7 @@ Zázemí a hlavní výhody tábora:
 - Děti budou využívat velké multifunkční hřiště vhodné pro různé sportovní a pohybové hry, dětské hřiště pro volnou zábavu a také rozlehlé travnaté plochy, které jsou ideální pro běhání, týmové hry i další aktivity. Příjemným zpestřením je také mini ZOO v areálu, která potěší zejména mladší děti a přinese do programu další zajímavý zážitek.
 - Jako zázemí pro děti bude sloužit moderně vybavená chatka a zázemí hotelu, kde se mohou převléknout, odpočinout si nebo se schovat v případě nepříznivého počasí. V letní sezóně nabízí areál také příjemnou atmosféru venkovního posezení s krbem a celkově velmi přátelské prostředí.
 - Program tábora je koncipován tak, aby se během dne střídaly aktivní sportovní bloky s klidnějšími částmi programu. Po celou dobu se o děti starají zkušení a vstřícní instruktoři, kteří vytvářejí bezpečné a podporující prostředí, ve kterém si děti mohou užít pohyb, získat nové dovednosti a odnést si spoustu hezkých zážitků. Součástí programu mohou být také různé doprovodné aktivity nebo návštěvy zajímavých hostů, například hasičů či policie, které dětem celý týden ještě více zpestří.
+  
 ⸻
 
 Naší prioritou je:
