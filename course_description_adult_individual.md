@@ -20,8 +20,6 @@ Individuální lekce je možná pro jednotlivce i pro více osob – například
 
 Termín, místo i čas lekce bude upřesněn po vzájemné dohodě – co nejdříve vás budeme kontaktovat telefonicky či e-mailem.
 
-Platbu lze provést na místě nebo vám zašleme platební údaje.
-
 Moc se na vás těšíme! Společně roztočíme kolečka a užijeme si spoustu zábavy 😊.
 
 Pokud máte jakékoliv dotazy, neváhejte nás kontaktovat!
