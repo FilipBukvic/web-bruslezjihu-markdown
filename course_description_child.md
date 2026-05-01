@@ -15,8 +15,6 @@ Po vyplnění elektronické přihlášky obdržíte e-mailem potvrzení o přihl
 
 Pokud potřebujete zapůjčit vybavení, dejte nám vědět nebo svůj konkrétní požadavek uveďte v poznámce při registraci do kurzu.
 
-Platbu lze provést na místě nebo vám zašleme platební údaje.
-
 Moc se na vás a vaše děti těšíme! Společně roztočíme kolečka a užijeme si spoustu zábavy 😊.
 
 Pokud máte jakékoliv dotazy, neváhejte nás kontaktovat!
