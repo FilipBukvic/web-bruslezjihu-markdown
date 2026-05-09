@@ -52,7 +52,6 @@ přezůvky do tělocvičny
 ručník
 sportovní oblečení – kraťasy, tepláky/dlouhé kalhoty, trička, mikinu, případně ponožky.
 kopii kartičky zdravotní pojišťovny
-V případě, že si potřebujete něco zapůjčit (např. brusle, helmu nebo chrániče), napište nám to prosím do poznámky při přihlašování – rádi vám vybavení zdarma zapůjčíme.
 
 Pokud má dítě alergii nebo užívá léky, je nutné vše v pondělí ráno osobně předat trenérovi a mít informace řádně vypsané.
 
