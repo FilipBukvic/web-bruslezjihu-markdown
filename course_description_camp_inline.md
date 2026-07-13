@@ -51,7 +51,7 @@ Každé dítě pracuje podle své úrovně – ať už je úplný začátečník
 
 **Organizace dne:**
 
-🕗 Příchod dětí: mezi 7:30–8:00 
+🕗 Příchod dětí: mezi 7:00–8:00 
 🕓 Vyzvedávání dětí: mezi 15:30–16:00 (případně po individuální domluvě i dříve)
 
 ⸻
