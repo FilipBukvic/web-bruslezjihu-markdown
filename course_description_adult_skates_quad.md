@@ -1,5 +1,3 @@
-# Kurzy čtyřkových (quad) bruslí
-
 Vážení bruslaři 😊,
 
 děkujeme za váš zájem o kurz QUAD bruslení! 🛼
