@@ -7,11 +7,12 @@ Zároveň je pro nás důležité, aby děti trénink bavil. Proto je kurz veden
 🥊 Kurz vede Aisha Smudková
 Jednou z největších předností kurzu je právě jeho trenérka Aisha Smudková.
 Aisha je aktivní MMA závodnice a účastnice mistrovství světa IMMAF. Je mistryní České republiky v MMA ve dvou organizacích, úspěšně závodí také v grapplingu a má bohaté zkušenosti s trénováním dětí i dospělých.
+
 Mezi její největší sportovní úspěchy patří:
 - 🤼‍♀️ ADCC AMATEUR WORLD CHAMPION
 - 🥊 CZECH MMA CHAMPION
 - 🏆 WINNER OF TATAMY RANKING 2024 AND 2025
-- 
+  
 Dětem tak předává nejen své zkušenosti ze soutěží a bojových sportů, ale také zkušenosti z trenérské praxe. Tréninky vede bezpečně, srozumitelně a zábavnou formou, aby si děti odnesly praktické dovednosti, větší jistotu a zároveň je pohyb bavil.
 
 Kurz probíhá v našem Sportovním centru Brusliště, J. Opletala 926/20, České Budějovice.
